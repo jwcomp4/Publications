@@ -14,7 +14,7 @@ When considering the health and flourishing of humans and human communities, we 
 
 ## Creaturely Communal Ontology: John Zizioulas in Dialogue with Ritual Theory
 
-**J. Compton.** Creaturely Communal Ontology: John Zizioulas in Dialogue with Ritual Theory. Religions, 10 (9), 19-29 (2019).
+[**J. Compton.** Creaturely Communal Ontology: John Zizioulas in Dialogue with Ritual Theory. Religions, 10 (9), 19-29 (2019).](https://www.mdpi.com/2077-1444/10/9/506)
 
 ### Abstract
 
@@ -24,7 +24,7 @@ This article is born out of a deep concern for our current ecological crisis and
 
 ## A Systematic Review of Peer-Reviewed Literature Authored by Medical Professionals Regarding US Biomedicine's Role in Responding to Climate Change
 
-R. Graham, **J. Compton**, & K. Meador. A Systematic Review of Peer-Reviewed Literature Authored by Medical Professionals Regarding US Biomedicine's Role in Responding to Climate Change. Preventive Medicine Reports, 13, 132–138 (2018).
+[R. Graham, **J. Compton**, & K. Meador. A Systematic Review of Peer-Reviewed Literature Authored by Medical Professionals Regarding US Biomedicine's Role in Responding to Climate Change. Preventive Medicine Reports, 13, 132–138 (2018).](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC6299145/)
 
 ### Abstract
 
@@ -34,7 +34,7 @@ Extant literature illustrates a substantive impact on human health because of cl
 
 ## Genetically Modified Products and Food Allergy: Beliefs, Evidence, and Opportunity
 
-**J. Compton**, J. Fanning, & A. Nickles. Genetically Modified Products and Food Allergy: Beliefs, Evidence, and Opportunity. Annals of Allergy, Asthma & Immunology, 119:3, 198-99 (2017).
+[**J. Compton**, J. Fanning, & A. Nickles. Genetically Modified Products and Food Allergy: Beliefs, Evidence, and Opportunity. Annals of Allergy, Asthma & Immunology, 119:3, 198-99 (2017).](https://www.sciencedirect.com/science/article/pii/S1081120617305987?via%3Dihub)
 
 ### Abstract
 
