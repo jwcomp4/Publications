@@ -34,7 +34,7 @@ Extant literature illustrates a substantive impact on human health because of cl
 
 ### Abstract
 
-This short article serves as a short editorial on the issues related to GMO technology and allergies. It provides brief commentary on the primary research article of this issues of *Annals of Allergy, Asthma & Immunology* and discusses the ways that care providers must navigate issues related to popularly held beliefs and questions or concerns for which we lack evidence.
+This short article serves as a short editorial on the issues related to GMO technology and allergies. It provides brief commentary on the primary research article of this issue of *Annals of Allergy, Asthma & Immunology* and discusses the ways that care providers must navigate issues related to popularly held beliefs and questions or concerns for which we lack evidence.
 
 
 
