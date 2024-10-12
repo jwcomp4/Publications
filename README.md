@@ -6,7 +6,7 @@ This repo serves as  way to house recent publications conveniently. Below are th
 
 ## Ecological Health: Ethics as the Starting Place
 
-**J. Compton** & Keith Meador. Ecological Health: Ethics as the Starting Place to Engage Our Planetary Health Crisis. Perspectives in Biology and Medicine (in press)
+[**J. Compton** & Keith Meador. Ecological Health: Ethics as the Starting Place to Engage Our Planetary Health Crisis. Perspectives in Biology and Medicine (2022).](https://pubmed.ncbi.nlm.nih.gov/36468382/)
 
 ### Abstract
 
